@@ -1,0 +1,2 @@
+# Redakcia
+Redakcia
